@@ -3,6 +3,6 @@
 #Alief Yuwastika Firmandicky
 #672020316
 
-#EVYDIAN ROSA PUTRI
+#Evydian Rosa Putri
 #672020154	
 
